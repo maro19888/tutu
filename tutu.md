@@ -8,3 +8,4 @@
 5. Items spawned and provided by Admins should be used in specific areas and with specified purpose.
 6. Please follow the orders of *STAFF* members. If you don't agree, you can come to the **Discord** (join button above) to talk about it.
 7. Hope you enjoy the server!
+![Seymour](https://i.postimg.cc/TY0vxphq/tento.jpg)
