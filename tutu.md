@@ -1,5 +1,5 @@
 # WELCOME TO THE **Noobs Duels Server**
-<a id="CRINGE DUELYARD DISCORD">https://discord.gg/WYz7jR8H</> [RAW LINK: https://discord.gg/WYz7jR8H]
+<a id="NOOBS DUELS DISCORD">https://discord.gg/WYz7jR8H</> [RAW LINK: https://discord.gg/WYz7jR8H]
 ## **THE RULES:**
 1. *NO TOXICITY*.
 2. This is a *DUEL* SERVER. NO **FFA** in normal play area!
@@ -8,4 +8,4 @@
 5. Items spawned and provided by Admins should be used in specific areas and with specified purpose.
 6. Please follow the orders of *STAFF* members. If you don't agree, you can come to the **Discord** (join button above) to talk about it.
 7. Hope you enjoy the server!
-![Seymour](https://i.postimg.cc/TY0vxphq/tento.jpg)
+![Seymour](https://i.postimg.cc/MTqggwxr/PICTUREX.jpg)
