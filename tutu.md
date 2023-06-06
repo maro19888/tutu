@@ -5,6 +5,7 @@
    *NO FFA*.
    *NO CHEATS*.
    *NO TROLLS and BULLY*.
+  ![Seymour](https://i.postimg.cc/MTqggwxr/PICTUREX.jpg)
 2. This is a *DUEL* SERVER. NO **FFA** in normal play area!
 3. The *ONLY* time **FFA** is allowed is in tp ffa, during specific events or against your friends.
 4. Smoke bombs, fire bombs, bear traps and toolbox buildings in normal play area are *FORBIDDEN*. Disrupting duels using those items is **FFA**.
