@@ -9,3 +9,4 @@
 6. Please follow the orders of *STAFF* members. If you don't agree, you can come to the **Discord** (join button above) to talk about it.
 7. Hope you enjoy the server!
 ![Seymour](https://i.postimg.cc/MTqggwxr/PICTUREX.jpg)
+Have fun!
