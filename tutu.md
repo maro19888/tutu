@@ -1,5 +1,5 @@
 # WELCOME TO THE **Noobs Duels Server**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/WYz7jR8H</> [RAW LINK: https://discord.gg/WYz7jR8H]
+<a id="NOOBS DUELS DISCORD">https://discord.gg/rgX3R5MR</> [RAW LINK: https://discord.gg/rgX3R5MR]
 ## **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
