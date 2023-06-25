@@ -1,11 +1,11 @@
-![Seymour](https://i.postimg.cc/x1XCsgWp/images.jpg)
+![Seymour](https://i.postimg.cc/VL1ZBVb1/mordhau-knight-halberd-banner.jpg)
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/PrHMHe2f</> [RAW LINK: https://discord.gg/PrHMHe2f]
 ## Become a vip member [more info on discord]
    *Vip Programs
    *Vip Benefits
    *Vip support
-   ## **THE RULES:**
+# **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
    *NO CHEATS*.
