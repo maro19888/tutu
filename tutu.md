@@ -1,8 +1,11 @@
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/PrHMHe2f</> [RAW LINK: https://discord.gg/PrHMHe2f]
-
-<a id=Donate us click here : >"https://www.paypal.com/donate/?hosted_button_id=5HNC67LNEFRQS"</>
-## **THE RULES:**
+# DONATE US ON DISCORD
+# JOIN TO OUR VIP CLUB [more info on discord]
+   *Vip Programs
+   *Vip Benefits
+   *Vip support
+   ## **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
    *NO CHEATS*.
