@@ -1,10 +1,11 @@
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/PrHMHe2f</> [RAW LINK: https://discord.gg/PrHMHe2f]
+Donate us click here : https://www.paypal.com/donate/?hosted_button_id=5HNC67LNEFRQS
 ## **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
    *NO CHEATS*.
-   *NO TROLLS and BULLY*.
+   *NO TROLLS and Bullying*.
    *NO RACISM*.
 2. This is a *DUEL* SERVER. NO **FFA** in normal play area! ONLY 1v1
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox buildings in normal play area are *FORBIDDEN*. Disrupting duels using those items is **FFA**.
