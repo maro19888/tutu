@@ -1,7 +1,7 @@
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/PrHMHe2f</> [RAW LINK: https://discord.gg/PrHMHe2f]
 
-<a Donate us click here : https://www.paypal.com/donate/?hosted_button_id=5HNC67LNEFRQS
+Donate us click here : https://www.paypal.com/donate/?hosted_button_id=5HNC67LNEFRQS
 ## **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
