@@ -1,4 +1,4 @@
-![Seymour](https://i.postimg.cc/PJFnGCg2/maxresdefault.jpg)
+![Seymour](https://postimg.cc/rDdxykmD)
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/PrHMHe2f</> [RAW LINK: https://discord.gg/PrHMHe2f]
 ## Become a vip member [more info on discord]
