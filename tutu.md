@@ -1,6 +1,6 @@
 ![Seymour](https://i.postimg.cc/VL1ZBVb1/mordhau-knight-halberd-banner.jpg)
 # WELCOME TO THE **Noobs Duels Server**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/mFpcYjgU</>
+<a id="NOOBS DUELS DISCORD">https://discord.gg/xNXF4WKV</>
 ## Become a vip member [more info on discord]
    *Vip Programs
    *Vip Benefits
