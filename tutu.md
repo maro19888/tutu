@@ -17,7 +17,7 @@
 ![Seymour](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
 Have fun!
 create by Markus IV
-Donate our server (<form action="https://www.paypal.com/donate" method="post" target="_top">
+<a id="Donate our server"> <form action="https://www.paypal.com/donate" method="post" target="_top">
 <input type="hidden" name="hosted_button_id" value="NF46525QPAK28" />
 <input type="image" src="https://pics.paypal.com/00/s/N2VkNjA3OWMtNDM5Yy00NzhkLWIxMDUtNDY4Y2E4NDRiZWJk/file.PNG" border="0" name="submit" title="PayPal - The safer, easier way to pay online!" alt="Donate with PayPal button" />
 <img alt="" border="0" src="https://www.paypal.com/en_SK/i/scr/pixel.gif" width="1" height="1" />
