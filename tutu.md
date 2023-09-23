@@ -16,21 +16,20 @@
 4. Respect all players and Staff !
 ![Seymour](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
 # OUR ADMIN TEAM
-Super Admins👨‍⚖️ 
+*Super Admins👨‍⚖️ 
 
 EliteAdmin [Markus Crassus]
 EliteAdmin [Imperator Sulla]
 SuperAdmin [Moonie(Yoda)]
 SuperAdmin [Whisky]
 
-Admins👮 
-
+*Admins👮 
 Admin [Rat]
 Admin [Ventus]
 Admin [Earl Emre]
 Admin [Mr.towlie]
 
-Mods👨‍🔧 
+*Mods👨‍🔧 
 Mod [Fanny]
 Mod [Dimitrescu]
 Mod [Laden(Lidz)]
@@ -39,7 +38,7 @@ Mod [DougwrecksTV]
 Mod [HenryCavill]
 Trial Mod [Samwise]
 Trial Mod [Mayokal]
-Trial Mod [Straw(goat)]
+Trial Mod [Straw(goat)] *.
 
 Have fun!
 create by Markus Crassus
