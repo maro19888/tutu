@@ -15,5 +15,31 @@
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox are not allowed !!!
 4. Respect all players and Staff !
 ![Seymour](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
+# OUR ADMIN TEAM
+Super Admins👨‍⚖️ 
+
+SuperAdmin [Markus Crassus]
+SuperAdmin [Moonie(Yoda)]
+SuperAdmin [Imperator Sulla]
+SuperAdmin [Whisky]
+
+Admins👮 
+
+Admin [Rat]
+Admin [Ventus]
+Admin [Earl Emre]
+Admin [Mr.towlie]
+
+Mods👨‍🔧 
+Mod [Fanny]
+Mod [Dimitrescu]
+Mod [Laden(Lidz)]
+Mod [Charon]
+Mod [DougwrecksTV]
+Mod [HenryCavill]
+Trial Mod [Samwise]
+Trial Mod [Mayokal]
+Trial Mod [Straw(goat)]
+
 Have fun!
 create by Markus Crassus
