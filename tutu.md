@@ -18,9 +18,9 @@
 # OUR ADMIN TEAM
 Super Admins👨‍⚖️ 
 
-SuperAdmin [Markus Crassus]
+EliteAdmin [Markus Crassus]
+EliteAdmin [Imperator Sulla]
 SuperAdmin [Moonie(Yoda)]
-SuperAdmin [Imperator Sulla]
 SuperAdmin [Whisky]
 
 Admins👮 
