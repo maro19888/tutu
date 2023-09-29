@@ -9,7 +9,7 @@
 1. *NO TOXICITY*.
    *NO FFA*.
    *NO CHEATS*.
-   *NO TROLLS and Bullying*.
+   *NO TROLLS and BULLYING*.
    *NO RACISM*.
 2. This is a *DUEL* SERVER. NO **FFA** only 1v1 duels
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox are not allowed !!!
