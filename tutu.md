@@ -16,6 +16,6 @@
 4. Respect all players and Staff !
 ![ROME](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
 **Our Admin Team:**
-![Staff](https://i.postimg.cc/TPhwGtXL/HD-Mordhau-Wallpaper-2-fotor-20230929182816-1.jpg)
+![Staff](https://i.postimg.cc/NF3S2yDX/mordhau.jpg)
 Have fun!
 create by Markus Crassus
