@@ -1,6 +1,6 @@
 ![Noobs Duels Kingdom](https://i.postimg.cc/VL1ZBVb1/mordhau-knight-halberd-banner.jpg)
 # WELCOME TO THE **Noobs Duels Server**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/sVpxgjwf</>
+<a id="NOOBS DUELS DISCORD">https://discord.gg/zuEWkcXE</>
 ## Become a vip member [more info on discord]
    *Vip Programs
    *Vip Benefits
