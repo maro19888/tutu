@@ -15,7 +15,5 @@
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox are not allowed !!!
 4. Respect all players and Staff !
 ![ROME](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
-**Our Admin Team:**
-![Staff](https://i.postimg.cc/hjy5wZbN/mordhau-1.jpg)
 Have fun!
-create by Markus Crassus
+create by Marcus
