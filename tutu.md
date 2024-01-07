@@ -12,8 +12,9 @@
    *NO TROLLS and BULLYING*.
    *NO RACISM*.
 2. This is a *DUEL* SERVER. NO **FFA** only 1v1 duels
-3. Smoke bombs, fire bombs, bear traps, bows and toolbox are not allowed !!!
-4. Respect all players and Staff !
+3. Smoke bombs, fire bombs, bear traps, bows and toolbox are NOT allowed !!!
+4. Nazi outfits are NOT allowed !!!
+5. Respect all players and Staff !
 ![ROME](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
 Have fun!
 create by Marcus
