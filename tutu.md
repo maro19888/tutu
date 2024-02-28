@@ -1,10 +1,16 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/VL1ZBVb1/mordhau-knight-halberd-banner.jpg)
+![Noobs Duels Kingdom](https://i.postimg.cc/RZRcFSbV/mordhau-knight-halberd-banner.jpg)
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/nbs1</>
 ## Become a vip member[more info on discord]
    *Vip Programs
    *Vip Benefits
    *Vip support
+   *Vip commands
+## Events
+   *FFA Custom arenas
+   *Boss Events
+   *Vip events
+   *Boxing events
 # **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
@@ -15,6 +21,6 @@
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox are NOT allowed !!!
 4. Nazi outfits are NOT allowed !!!
 5. Respect all players and Staff !
-![ROME](https://i.postimg.cc/2SWKX5qg/bvs.jpg)
+![ROME](https://postimg.cc/MvMxhKnb)
 Have fun!
 create by Marcus
