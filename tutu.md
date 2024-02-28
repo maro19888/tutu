@@ -21,6 +21,6 @@
 3. Smoke bombs, fire bombs, bear traps, bows and toolbox are NOT allowed !!!
 4. Nazi outfits are NOT allowed !!!
 5. Respect all players and Staff !
-![ROME](https://postimg.cc/MvMxhKnb)
+![ROME](https://i.postimg.cc/4ycQq2qq/ss-fa8ee3890cfcd17325e0e54371aed2a70ea60388-1920x1080.jpg)
 Have fun!
 create by Marcus
