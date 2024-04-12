@@ -29,4 +29,4 @@
 - Slots 64
 ![ROME](https://i.postimg.cc/4ycQq2qq/ss-fa8ee3890cfcd17325e0e54371aed2a70ea60388-1920x1080.jpg)
 Have fun!
-create by Marcus
+created by Marcus
