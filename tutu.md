@@ -23,7 +23,7 @@
 5. Respect all players and Staff !
 ## Server info
 - Location GERMANY
-- Tickrate 128
+- Tickrate unlocked [currect 60 for test]
 - Server CPU INTEL I7 [20 cores]
 - Server RAM 128GB
 - Slots 64
