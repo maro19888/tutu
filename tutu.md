@@ -1,16 +1,13 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/RZRcFSbV/mordhau-knight-halberd-banner.jpg)
-# WELCOME TO THE **Noobs Duels Server**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/noobs</>
+![Noobs Duels Kingdom](https://i.postimg.cc/KvGZVPk9/kings.jpg)
+# WELCOME TO THE **KINGS FREEDOM [NO FFA]**
+<a id="NOOBS DUELS DISCORD">https://discord.gg/k9xtXjsw</>
 ## Become a vip member[more info on discord]
-   *Vip Programs
-   *Vip Benefits
-   *Vip support
-   *Vip commands
+   *Have Fun
+   *Dont be noob
+   *Play Fair
+   *Respect players
 ## Events
-   *FFA Custom arenas
-   *Boss Events
-   *Vip events
-   *Boxing events
+   *in development
 # **THE RULES:**
 1. *NO TOXICITY*.
    *NO FFA*.
@@ -22,11 +19,11 @@
 4. Nazi outfits are NOT allowed !!!
 5. Respect all players and Staff !
 ## Server info
-- Location GERMANY
+- Location UK
 - Tickrate unlocked [currect 60 for test]
 - Server CPU INTEL I7 [20 cores]
 - Server RAM 128GB
 - Slots 64
-![ROME](https://i.postimg.cc/4ycQq2qq/ss-fa8ee3890cfcd17325e0e54371aed2a70ea60388-1920x1080.jpg)
-Have fun!
-created by Marcus
+![ROME](https://i.postimg.cc/sg8svbn8/knights.jpg)
+
+
