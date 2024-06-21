@@ -1,6 +1,6 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/KvGZVPk9/kings.jpg)
+![KINGS FREEDOM](https://i.postimg.cc/KvGZVPk9/kings.jpg)
 # WELCOME TO THE **KINGS FREEDOM [NO FFA]**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/k9xtXjsw</>
+<a id="KINGS FREEDOM DISCORD">https://discord.gg/k9xtXjsw</>
 ## Become a vip member[more info on discord]
    *Have Fun
    *Dont be noob
