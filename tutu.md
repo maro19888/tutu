@@ -15,6 +15,6 @@
 - Server CPU INTEL XEON I9 [24 cores]
 - Server RAM 256GB
 - Slots 10
-![ROME](https://i.postimg.cc/sg8svbn8/knights.jpg)
+![!](https://i.postimg.cc/sg8svbn8/knights.jpg)
 
 
