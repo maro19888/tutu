@@ -1,5 +1,5 @@
 ![KINGS FREEDOM](https://i.postimg.cc/KvGZVPk9/kings.jpg)
-# WELCOME TO THE **KINGS FREEDOM [NO FFA]**
+# WELCOME TO THE **KINGS FREEDOM**
 # **THE RULES:**
 1. *NO TOXICITY*.
    *NO CHEATS*.
