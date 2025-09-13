@@ -1,4 +1,4 @@
-![KINGS FREEDOM](https://i.postimg.cc/0Q7q4bw4/3fff185c-1c2c-4b5c-905b-b66c2e18dd2f.png)
+![KINGS FREEDOM](https://i.postimg.cc/Y068YNc8/Chat-GPT-Image-13-9-2025-15-44-17.png)
 # WELCOME TO THE **Just Duels (No FFA)**
 # **THE RULES:**
 1. *NO TOXICITY*.
