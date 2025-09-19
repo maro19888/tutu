@@ -1,4 +1,4 @@
-![Just Duels](https://i.postimg.cc/Y068YNc8/Chat-GPT-Image-13-9-2025-15-44-17.png)
+![Just Duels](https://i.postimg.cc/9FXnPWqs/Chat-GPT-Image-19-9-2025-18-19-08.png)
 
 
 
