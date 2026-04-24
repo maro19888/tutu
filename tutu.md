@@ -4,7 +4,8 @@
 2. *NO CHEATS*.   
 3. *NO TROLLS and BULLYING*.   
 4. *NO RACISM*.
-HAVE FUN NOOBS
+5. HAVE FUN NOOBS
+
   
 
 
